@@ -1,2 +1,2 @@
-# Proyek_Karya_Ilmiah-
+# Proyek_Karya_Ilmiah
 Proyek Karya Ilmiah
